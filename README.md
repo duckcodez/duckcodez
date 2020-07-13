@@ -1,4 +1,4 @@
-### Hey! 👋
+### Hey, I am Quy! 👋
 
 I am a laser engineer turned developer who moonlights as a chef. 
 
